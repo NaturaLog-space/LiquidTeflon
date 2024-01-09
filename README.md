@@ -16,3 +16,7 @@
 - Low cost disposable teflon gloves made with alternating layers of butyl rubber and teflon
 
 - gloves that are dipped for a thin coat then cured in alternating layers of butyl rubber and teflon 
+
+- teflon fabric is waterproof
+
+- teflon fibers formed from spray curing resin into uv light
