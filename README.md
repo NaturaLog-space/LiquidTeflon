@@ -7,6 +7,8 @@
 
 - polymerization initiatior and catalyst
 
+- disuccinic acid and ammonium persulfate initiator
+
 - solvent for room temperature resin
 
 - A method of 3d printing pure teflon using tetrafluoroethylene would make teflon parts widely available to use in the industry within dupont and other companies.
