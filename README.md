@@ -22,3 +22,8 @@
 - teflon fabric is waterproof
 
 - teflon fibers formed from spray curing resin into uv light
+
+## Teflon Safety Clothing for Industry
+- Clothing such as overalls, shoes, and undergarments made for hazardous environments
+- Long lasting teflon clothing
+- Safe to bleach for disinfecting clothes
