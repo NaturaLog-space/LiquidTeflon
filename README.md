@@ -27,3 +27,4 @@
 - Clothing such as overalls, shoes, and undergarments made for hazardous environments
 - Long lasting teflon clothing
 - Safe to bleach for disinfecting clothes
+- Water Proof
